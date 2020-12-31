@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 <!--
-**placidmoon1/placidmoon1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**placidmoon1/placidmoon1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.-->
 
 Gu Hong (Kevin) Min wants to innovate education with technology.
 
