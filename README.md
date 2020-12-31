@@ -13,5 +13,4 @@ Now, he wants to do more. Through convergence of technology and education, he pl
 
 * Recipient of the **2019 KAIST Global Leader Award in Volunteering**
 * Recipient of the **2019, 2020 World-Friends ICT Volunteers Outstanding Team Grand Prize** by NIA of South Korea.
-* Taught in 5 different continents, and 7 different countries
-(Asia: Cambodia/South Korea | Africa: Tanzania, Uganda | NA: USA | SA: Brazil | Europe: Serbia). 
+* Taught with **Naver, LG, Etoos, NIA, KIV, KAIST, Yonsei University**, and many more. 
