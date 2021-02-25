@@ -12,8 +12,9 @@ He has over nine years of experience as an educator, and has worked with various
 
 Now, he wants to do more. Through convergence of technology and education, he plans to reach a wider audience, and make a significant impact to the world.
 
-* Recipient of the **2019 KAIST Global Leader Award in Volunteering**
+* Recipient of the **2020 대학생 교육기부 우수동아리 부총리 겸 교육부 장관상** by South Korea. 
 * Recipient of the **2019, 2020 World-Friends ICT Volunteers Outstanding Team Grand Prize** by NIA of South Korea.
+* Recipient of the **2019 KAIST Global Leader Award in Volunteering**
 * Worked with **Naver, LG, Etoos, NIA, KIV, KAIST, Yonsei University**, and many more. 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
