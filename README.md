@@ -12,10 +12,10 @@ He has over nine years of experience as an educator, and has worked with various
 
 Now, he wants to do more. Through convergence of technology and education, he plans to reach a wider audience, and make a significant impact to the world.
 
-* Recipient of the **2022 Mininster of Science and ICT Award, 2020 Minister of Education Award** by South Korea. 
-* Recipient of the **2022 President of KISED Award, 2021 President of KOICA Award** by South Korea, for excellent start-up products
-* Recipient of the **2019, 2020 World-Friends ICT Volunteers Outstanding Team Grand Prize** by NIA of South Korea.
-* Recipient of the **2019 KAIST Global Leader Award in Volunteering** by KAIST of South Korea 
+* Recipient of the **2022 Mininster of Science and ICT Award, 2020 Minister of Education Award** of South Korea. 
+* Recipient of the **2022 President of KISED Award, 2021 President of KOICA Award** of South Korea.
+* Recipient of the **2019, 2020 World-Friends ICT Volunteers Outstanding Team Grand Prize** by NIA.
+* Recipient of the **2019 KAIST Global Leader Award in Volunteering** by KAIST of South Korea.
 * Taught on behalf of numerous organizations, including **Naver, LG, Samsung SDS, JA Korea, Etoos, NIA, KIV, KAIST, Yonsei University**, and many more. 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
